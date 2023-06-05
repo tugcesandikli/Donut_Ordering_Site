@@ -1,0 +1,1 @@
+burası kurumsal sayfa

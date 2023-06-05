@@ -1,0 +1,1 @@
+burasi goruntuleme blade
